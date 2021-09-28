@@ -1,1 +1,0 @@
-# SDG-10-Website_Discover-Page_Equality-at-Every-Step
